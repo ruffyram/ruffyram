@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ruffledram&color=#F552bc)
+![](https://komarev.com/ghpvc/?username=ruffledram&color=#EC6EF5)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31seofcbs3nhcviqd3wzjugyq3ce&cover_image=true&theme=default&show_offline=false&background_color=371a3c&interchange=false&bar_color=b14e7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
