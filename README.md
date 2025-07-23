@@ -5,6 +5,7 @@
 𝙷𝚒 𝚖𝚢 𝚗𝚊𝚖𝚎𝚜 𝚁𝚞𝚏𝚏𝚢/𝚁𝚊𝚖, 𝚊𝚗𝚍 𝚁𝚞𝚏𝚏 𝚏𝚘𝚛 𝚌𝚕𝚘𝚜𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚗𝚕𝚢. B𝚎𝚜𝚒𝚍𝚎𝚜 𝚝𝚑𝚊𝚝 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚠𝚝𝚟 𝚙𝚘𝚗𝚢 𝚒𝚖 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚊𝚜.
 C+H is good anytime, unless i move away then im not in the mood.
 Not Taken. ((Straightdemi girl.)
+
 Sonadow dniuf.
 Metadede ABSOLUTELY INT.
 Sonamy int.
