@@ -2,27 +2,19 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31seofcbs3nhcviqd3wzjugyq3ce&cover_image=true&theme=default&show_offline=false&background_color=371a3c&interchange=false&bar_color=b14e7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-└➤ˏˋ°•⁀➷｡･:˚:✧｡₊˚ˑ༄ؘ❥•°❀°•༢.ೃ࿐˚ ༘♡ ⋆｡˚ ❀
-
-SIGNS !!
-
-⛔: afk ,, offtab
-
-🌙: probably w a friend and/or chill
-
-🟢: online ,, rarely used ..
-
-💬LFC: desperately bored ..
-
-🎭LFR: NEVER used, don't bother asking unless your a friend and i'm up for it.
+𝙷𝚒 𝚖𝚢 𝚗𝚊𝚖𝚎𝚜 𝚁𝚞𝚏𝚏𝚢/𝚁𝚊𝚖, 𝚊𝚗𝚍 𝚁𝚞𝚏𝚏 𝚏𝚘𝚛 𝚌𝚕𝚘𝚜𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚗𝚕𝚢. B𝚎𝚜𝚒𝚍𝚎𝚜 𝚝𝚑𝚊𝚝 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚠𝚝𝚟 𝚙𝚘𝚗𝚢 𝚒𝚖 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚊𝚜.
+C+H is good anytime, unless i move away then im not in the mood.
+Not Taken. ((Straightdemi girl.)
+Sonadow dniuf.
+Metadede ABSOLUTELY INT.
+Sonamy int.
+Sonurge int.
+Metonic INT. (#1 Metonic lover)
+Sonaze int.
+basically all Ships except animal x human and child x adult.
 
 
-Contacting Me ˖𓍯፤⁑
-
-➼Discord ;; rvffIed
-
-➼Email ;; ChaosRuffy@gmail.com
-_________________________
-PHOTO DUMP OF MAIN KINS!!!!!!!!!
-(Modern/Frontiers/idw Sonic specified)
-![tumblr_bea4130a319f0d7a45b071f52a8df65e_64fe57b8_540](https://github.com/user-attachments/assets/35732fea-04ef-4147-96c9-8607f5f30cfa) ![download](https://github.com/user-attachments/assets/ce7144d5-29be-456a-9c0e-afb99b2a20d8) ![f76924d12f234e925bebd3ad5176db1d](https://github.com/user-attachments/assets/fbee94dc-d8c2-4c23-bfe9-545d3b83134e) ![26-kirby-dancing-on-the-snow-usagif](https://github.com/user-attachments/assets/310304ca-c54d-4efa-8a39-5b2c23094b20)
+Main Kins
+__________
+![de8717cb44f82e7305d97de272ef6c31](https://github.com/user-attachments/assets/d3d532ae-d47d-4e9f-abfa-f8b7482059e2)
+![tumblr_67b2e2accfaddc80a452ddc9724bb338_261fd9f7_500](https://github.com/user-attachments/assets/e93dea0f-b07c-49bf-afc7-2fef5622f215)
