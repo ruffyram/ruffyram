@@ -3,7 +3,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31seofcbs3nhcviqd3wzjugyq3ce&cover_image=true&theme=default&show_offline=false&background_color=371a3c&interchange=false&bar_color=b14e7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 𝙷𝚒 𝚖𝚢 𝚗𝚊𝚖𝚎𝚜 𝚁𝚞𝚏𝚏𝚢/𝚁𝚊𝚖, 𝚊𝚗𝚍 𝚁𝚞𝚏𝚏 𝚏𝚘𝚛 𝚌𝚕𝚘𝚜𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚗𝚕𝚢. 
-
 B𝚎𝚜𝚒𝚍𝚎𝚜 𝚝𝚑𝚊𝚝 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚠𝚝𝚟 𝚙𝚘𝚗𝚢 𝚒𝚖 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚊𝚜.
 
 
@@ -16,14 +15,13 @@ Sonadow dniuf.
 
 Metadede ABSOLUTELY INT.
 
+Metonic INT. (#1 Metonic lover)
 
 Sonamy int.
 
 
 Sonurge int.
 
-
-Metonic INT. (#1 Metonic lover)
 
 
 Sonaze int.
