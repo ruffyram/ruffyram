@@ -23,3 +23,4 @@ Main Kins
 __________
 ![de8717cb44f82e7305d97de272ef6c31](https://github.com/user-attachments/assets/d3d532ae-d47d-4e9f-abfa-f8b7482059e2)
 ![tumblr_67b2e2accfaddc80a452ddc9724bb338_261fd9f7_500](https://github.com/user-attachments/assets/e93dea0f-b07c-49bf-afc7-2fef5622f215)
+![goku-super-saiyan-blue-s655jzg3liqsvhdw](https://github.com/user-attachments/assets/cdd9616c-461e-4035-b6df-1175f6c67a4b)
