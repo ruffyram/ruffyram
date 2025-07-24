@@ -7,7 +7,7 @@ B𝚎𝚜𝚒𝚍𝚎𝚜 𝚝𝚑𝚊𝚝 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊�
 
 C+H is good anytime, unless i move away then im not in the mood.
 
-Not Taken. ((Straightdemi girl.)
+Not Taken. ((Straightdemi girl.) for my trans oomfs:yes trans guys are acceptable too. 
 
 SHIPS
 ________
