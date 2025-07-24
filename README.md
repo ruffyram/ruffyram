@@ -15,7 +15,7 @@ ________
 
 ((KIRBY)) #1 Metadede (Meta Knight x King Dedede.)
 
-
+((DB)) #1 ALL CANON SHIPS
 basically all Ships except animal x human and child x adult.
 
 
