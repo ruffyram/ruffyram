@@ -11,21 +11,9 @@ Not Taken. ((Straightdemi girl.)
 
 SHIPS
 ________
-Sonadow dniuf.
+((SONIC)) #1 Metonic (Metal Sonic x Sonic) & (Metal Amy x Sonic.)
 
-
-Metadede ABSOLUTELY INT.
-
-Metonic INT. (#1 Metonic lover)
-
-Sonamy int.
-
-
-Sonurge int.
-
-
-
-Sonaze int.
+((KIRBY)) #1 Metadede (Meta Knight x King Dedede.)
 
 
 basically all Ships except animal x human and child x adult.
