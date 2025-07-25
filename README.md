@@ -1,4 +1,3 @@
-![](https://komarev.com/ghpvc/?username=ruffledram&color=E6205F)
 
 ![pink2](https://github.com/user-attachments/assets/2304aff0-4e37-4572-8602-d3fe7f7b00ec)
 
