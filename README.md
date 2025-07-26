@@ -1,10 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=E6205F)
 
 
-![pink2](https://github.com/user-attachments/assets/2304aff0-4e37-4572-8602-d3fe7f7b00ec)
+![Meat rider and Miku binder are imagine dragon fans not clickbait](https://github.com/user-attachments/assets/2c95dd74-57ec-4657-9b0c-8ec9718b7b5d)
 
-
-![ebe171aed83f68181ae154cf80ce60d3](https://github.com/user-attachments/assets/c5f4fb8d-b7d3-4644-80b9-bc138280494e)
 
 [Rentry](https://rentry.co/dr3am1and) is under construction so [patreon](https://www.patreon.com/c/hyperzchaos/about) for more
 
