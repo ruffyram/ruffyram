@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ruffledram&color=E6205F)
+![](https://komarev.com/ghpvc/?username=ruffledram&color=251473)
 
 
 ![tumblr_pofnbiG9ne1xcy6bso1_1280](https://github.com/user-attachments/assets/259926fc-e34f-4678-b42a-55710d0c6d33)
