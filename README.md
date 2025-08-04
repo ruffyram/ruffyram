@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=E6205F)
 
 
-https://static.wikia.nocookie.net/5421a7d2-97db-4115-8ede-587e52eefc9f
+https://media1.tenor.com/m/F9Hwga_JwfcAAAAd/dandys-world-cosmo-dandys-world.gif
 
 read [Rentry](https://rentry.co/dr3am1and) for more 
 
