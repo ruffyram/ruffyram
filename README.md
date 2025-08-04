@@ -1,8 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=E6205F)
 
 
-![Meat rider and Miku binder are imagine dragon fans not clickbait](https://github.com/user-attachments/assets/2c95dd74-57ec-4657-9b0c-8ec9718b7b5d)
-
+https://static.wikia.nocookie.net/5421a7d2-97db-4115-8ede-587e52eefc9f
 
 read [Rentry](https://rentry.co/dr3am1and) for more 
 
