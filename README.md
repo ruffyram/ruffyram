@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=E6205F)
 
 
-https://media1.tenor.com/m/F9Hwga_JwfcAAAAd/dandys-world-cosmo-dandys-world.gif
+![dandys-world-cosmo-dandys-world](https://github.com/user-attachments/assets/22a46313-dd5e-4ebb-b073-28617fd6c1d0)
+
 
 read [Rentry](https://rentry.co/dr3am1and) for more 
 
