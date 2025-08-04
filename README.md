@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=E6205F)
 
 
-![2e996671ac787cdb6640ae8463f693aa](https://github.com/user-attachments/assets/16065fe9-8250-4c12-b015-ef489b8c2e92)
+![tumblr_pofnbiG9ne1xcy6bso1_1280](https://github.com/user-attachments/assets/259926fc-e34f-4678-b42a-55710d0c6d33)
 
 
 
