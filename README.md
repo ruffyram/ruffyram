@@ -1,9 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=251473)
 
-me and the pooks real!!1
-<img width="721" height="628" alt="download" src="https://github.com/user-attachments/assets/bf71975b-8651-46a9-83e4-f216d071df0d" />
-
-
 
 
 read [Rentry](https://rentry.co/dr3am1and) for more 
