@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=251473)
 
-
-![tumblr_pofnbiG9ne1xcy6bso1_1280](https://github.com/user-attachments/assets/98019871-c239-449f-b647-66759121ae02)
+me and the pooks real!!1
+<img width="721" height="628" alt="download" src="https://github.com/user-attachments/assets/bf71975b-8651-46a9-83e4-f216d071df0d" />
 
 
 
