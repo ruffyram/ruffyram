@@ -1,5 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=251473)
 
+PS : If you simp for a magnifying glass dni it makes me VERY uncomfy! 😢🥺💔🥀 (for real though, simping for a character that a pedo made is…very telling about you 😬.)
 
 
 read [Rentry](https://rentry.co/dr3am1and) for more 
