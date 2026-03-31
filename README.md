@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=251473)
 
-For real though, if you see someone named KittyPawz on pt, ignore/unfriend them, theyre highly toxic and enjoy problematic shit.
+For real though, if you see someone named Petra or KittyPawz on pt, ignore/unfriend them, theyre highly toxic and enjoy problematic shit.
 
 read [Rentry](https://rentry.co/dr3am1and) for more ! :3
 
