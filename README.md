@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=251473)
 
-PS : If you simp for a magnifying glass dni it makes me VERY uncomfy! 😢🥺💔🥀 (for real though, simping for a character that a pedo made is…very telling about you 😬.)
-
-
+PS : Im a selfcest shipper, and if you try to shame people for that, thats on you. (cough* magically saying those ships makes you uncomfortable when you're clearly the asshole cough*)
 read [Rentry](https://rentry.co/dr3am1and) for more 
 
 
